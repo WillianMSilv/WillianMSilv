@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Willian 😁
+## Bem-vindo(a) ao perfil de Willian 
 
  <div>
    <a href="https://github.com/WillianMSilv">
